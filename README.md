@@ -1,0 +1,1 @@
+logica cartas super trabalho.
